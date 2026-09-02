@@ -11,4 +11,4 @@
 
 ꒰ Ａｂｏｕｔ ｍｅ ! 
 
-— Hello ! My name is Sofia / Pia , my pronouns is she / her . Lesbian ! I'm from the Philippines and my Birthday is June 13 . My hobbies is drawing , singing , dancing ( sometimes ) and editing ! I don't really know some fun facts about me :/ . 
+— Hello ! My name is Sofia / Pia , my pronouns is she / her . Aroace ! I'm from the Philippines and my Birthday is June 13 . My hobbies is drawing , singing , dancing ( sometimes ) and editing ! I don't really know some fun facts about me :/ . 
